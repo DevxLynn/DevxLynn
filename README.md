@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Lynn. I'm currently 21 years old, and I'm a Pharmacology student at Trinity College Dublin. I currently reside in Dublin.
+- 👀 I’m interested in anything medical, and programming.
+- 🌱 I’m currently learning Java and Python
+- 📫 How to reach me;
+      - Discord: Lynn ♡#1337
